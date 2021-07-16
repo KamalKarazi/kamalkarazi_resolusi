@@ -1,0 +1,1 @@
+# kamalkarazi_resolusi
